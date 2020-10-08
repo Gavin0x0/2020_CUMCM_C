@@ -22,3 +22,7 @@
    - ![1602145083511.jpg](https://tva1.sinaimg.cn/mw690/007e6d0Xgy1gjhzzitrw7j32o02004qq.jpg)
    - 最后顺利提交
    - ![image.png](https://tva1.sinaimg.cn/mw690/007e6d0Xgy1gji0epiohvj30t50k9dpa.jpg)
+ - 10月8日
+   - 成绩发布
+   - 居然有个省三🎉🎉🎉
+   - ![jike_1540498874480729_pic.jpeg](https://tva1.sinaimg.cn/mw690/007e6d0Xgy1gji0kgtwf0j30hs0hg3z7.jpg)
